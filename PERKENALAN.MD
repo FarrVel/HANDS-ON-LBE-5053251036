@@ -1,4 +1,4 @@
 NAMA : FARREL ARYASATYA RAHARJO
 NRP : 5053251036
 
-pingin konflik
+pingin konflik aku

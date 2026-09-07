@@ -1,4 +1,4 @@
-NAMA : FARREL ARYASATYA
+NAMA : FARREL ARYASATYA RAHARJO
 NRP : 5053251036
 
-Pulang pulang mas mba
+pingin konflik aku
